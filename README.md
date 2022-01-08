@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Olieg751
+- 👀 I’m interested in computer games 
+- 🌱 I’m currently learning ur mom 🐵
+- 🍌 I’m looking for banana
+- 📫 How to reach me discord Olieg#1889
