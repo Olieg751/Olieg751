@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Olieg751
-- 👀 I’m interested in computer games 
+- 👀 I’m interested in computer games
 - 🌱 I’m currently learning ur mom 🐵
 - 🍌 I’m looking for banana
 - 📫 How to reach me discord Olieg#1889
+- game that i play ETS2,LOL,CS:GO,gta sa/MTA,GTA5,Dead By Day light,NEON Abyss,Valorant, sometimes fortnite, Fall guys The New Z,Minecraft
